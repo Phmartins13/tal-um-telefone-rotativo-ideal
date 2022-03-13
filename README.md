@@ -1,0 +1,1 @@
+# tal-um-telefone-rotativo-ideal
